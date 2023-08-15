@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Antgeezy05
+- 👋 Hi, I’m Anthony Gonzalez or known on soical media as @antgeezy05
 - 👀 I’m interested in ... Anime, sports and family time.
 - 🌱 I’m currently learning ... Web basics from coding dojo.
 - 💞️ I’m looking to collaborate on ... with anyone trying to build something to help people
